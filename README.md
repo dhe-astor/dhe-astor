@@ -4,9 +4,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=dmxbasil" alt="​🇧​​🇦​​🇸​​🇮​​🇱​" /></a> </p>
 
-- 👨‍🎓 ɪ’ᴍ ᴀ ꜱᴛᴜᴅᴇɴᴛ ᴏꜰ ᴅᴇᴜᴛꜱᴄʜʟᴀɴᴅ 🇩🇪 **ʙ.ꜱ.ᴄ ᴄᴏᴍᴩᴜᴛᴇʀ ꜱᴄɪᴇɴᴄᴇ**
+- 👨‍🎓 ɪ’ᴍ ᴀ ꜱᴛᴜᴅᴇɴᴛ ɪɴ ᴅᴇᴜᴛꜱᴄʜʟᴀɴᴅ 🇩🇪 **ʙ.ꜱ.ᴄ ᴄᴏᴍᴩᴜᴛᴇʀ ꜱᴄɪᴇɴᴄᴇ**
 
-- 💆‍♂️ ɪ’ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ʟᴇᴀʀɴɪɴɢ **WEB Desing , 3D Game DEV**
+- 💆‍♂️ ɪ’ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ʟᴇᴀʀɴɪɴɢ **ᴡᴇʙ ᴅᴇꜱɪɢɴɪɴɢ , 3ᴅ ɢᴀᴍᴇ ᴅᴇᴠᴇʟᴏᴩᴍᴇɴᴛ**
 
 - 📫 ʜᴏᴡ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ **Basileldhose200323@gmail.com**
 
